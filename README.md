@@ -15,4 +15,4 @@
 
 我们在页面标题、Meta描述、正文中自然融入了“日本AV免费”以及相关关键词，提升了搜索引擎对页面的相关性。为了保持内容的新鲜度，每日更新最新的视频资源，并通过标签显示“今日更新”与“本周热播”，确保用户看到最新、最热的影片。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/dangconsong20250707/dangconsong8 ）</span>
